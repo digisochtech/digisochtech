@@ -7,11 +7,11 @@
 
 - 👯 I’m looking to collaborate on my projects
 
-- 👨‍💻 All of my projects are available at [https://github.com/DigiSoch](https://github.com/DigiSoch)
+- 👨‍💻 All of my projects are available at [https://github.com/digisochtech](https://github.com/digisochtech)
 
-- 📫 How to reach me [https://www.linkedin.com/in/digisoch/](https://www.linkedin.com/in/digisoch/)
+- 📫 How to reach me [https://www.linkedin.com/in/digisochtech/](https://www.linkedin.com/in/digisochtech/)
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/digisoch/](https://www.linkedin.com/in/digisoch/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/digisochtech/](https://www.linkedin.com/in/digisochtech/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
